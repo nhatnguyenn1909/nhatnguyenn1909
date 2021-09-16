@@ -1,3 +1,5 @@
+[Hướng dẫn cài đặt hshdkl.pdf](https://github.com/nhatnguyenn1909/nhatnguyenn1909/files/7180048/H.ng.d.n.cai.d.t.hshdkl.pdf)
+![tải xuống](https://user-images.githubusercontent.com/90862953/133662620-33a56910-9e9e-4e0b-a6a8-b74b36083463.jpeg)
 ### Hi there 👋
 
 <!--
